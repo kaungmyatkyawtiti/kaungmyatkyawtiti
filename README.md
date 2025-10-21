@@ -1,4 +1,4 @@
-## Hi I'm Kaung Myat Kyaw 🤪
+## Hi I'm Kaung Myat Kyaw 🧸
 
 <!--
 **kaungmyatkyawtiti/kaungmyatkyawtiti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
